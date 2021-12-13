@@ -1,2 +1,2 @@
-# RifqiMuhammadFauzi.github.io
+# RifqiMuhammadFauzi
 Projek 1
